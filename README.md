@@ -1,2 +1,2 @@
-# cg
-https://yin-n-yang.notion.site/CG-Lab-68754529154c48f8a7797519eede5e71?pvs=4
+# MAD
+https://yin-n-yang.notion.site/MAD-4ad4cba0bd634b90952534fe2254468d?pvs=4
